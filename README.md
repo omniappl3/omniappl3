@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @omniappl3
+- 👀 I’m interested in crcking JEE M&A
+- 🌱 I’m currently learning school
+- 💞️ I’m looking to collaborate on simple stuf
+- 📫 How to reach me: don't
+- 😄 Pronouns: dont ask/ dont care
+- ⚡ Fun fact: i d g a f
